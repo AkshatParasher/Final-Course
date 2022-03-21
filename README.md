@@ -1,3 +1,5 @@
+### GAMERSTOP
+
 Welcome to Gamerstop!
 
 Jump right in, and make your impact on the gaming community!
